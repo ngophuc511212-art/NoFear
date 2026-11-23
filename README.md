@@ -1,0 +1,2 @@
+# NoFear
+Discord.gg/Nofear
